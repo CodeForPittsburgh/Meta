@@ -210,4 +210,4 @@ No problem @mhowe0422! :slightly_smiling_face:
 We were interrupted by a thunderstorm, so we'll have to keep working out some concrete next steps, responsibilities, etc.
 
 connorsb [9:02 PM] 
-Thanks @eleanortutt for note-taking! Most excellent not
+Thanks @eleanortutt for note-taking!
